@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/adwaith003](https://github.com/adwaith003)
 
-- 📫 How to reach me **adwaithm10@gmail.com**
+- 📫 How to reach me **techimeuser@gmail.com**
 
 - ⚡ Fun fact **I am so damn good.**
 
