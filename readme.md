@@ -3,13 +3,13 @@
 
 - 🔭 I’m currently persuading **My goals**
 
-- 🌱 I’m currently learning **web designing**
+- 🌱 I’m currently learning **everything i can**
 
 - 👨‍💻 All of my projects are available at [https://github.com/adwaith003](https://github.com/adwaith003)
 
 - 📫 How to reach me **techimeuser@gmail.com**
 
-- ⚡ Fun fact **I am so damn good.**
+- ⚡ Fun fact **I am too good.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
